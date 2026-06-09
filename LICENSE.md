@@ -1,4 +1,4 @@
-# 
+# نخبة IObit Uninstaller امتدادات لـ Mac OS | رسمي IObit Uninstaller امتدادات لـ PC Windows. مع البدء السريع و تحديد المعدل — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
